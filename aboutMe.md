@@ -44,7 +44,7 @@ J’ai hâte de travailler ensemble et de créer des projets inspirants !
 
 🎯 Je suis à la recherche d’une alternance :
 
-Je recherche une alternance (contrat pro, 1 an) dans le développement web, avec un rythme de 4 jours en entreprise et 1 jour en formation. Motivée à contribuer à des projets innovants en full-stack, je serais ravie d’échanger pour toute opportunité !
+Je recherche une alternance (contrat pro, 12 à 24 mois) dans le développement web, avec un rythme de 4 jours en entreprise et 1 jour en formation. Motivée à contribuer à des projets innovants en full-stack, je serais ravie d’échanger pour toute opportunité !
 
 --------------------------------------------------------------------
 Fun fact :
